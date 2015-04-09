@@ -1,2 +1,2 @@
 # miscellaneous
-fill me up soon! :)
+fill me up soon!
